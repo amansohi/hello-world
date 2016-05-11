@@ -1,2 +1,2 @@
 # hello-world
-For testing and checking 
+Just trying to see how can I spend my free time. 
